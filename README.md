@@ -5,7 +5,7 @@ We publish STEM(Science, Technology, Engineering, and Mathematics) projects peri
 ##### [To download a detailed concept note on STEMGames, click here |attachment](upload://fYpm6bZrgn5LDeeksiAq8yTF1dK.pdf) (1.9 MB)
 > #### **Build a STEM Lab if you don’t have one. Make it active and vibrant if you already have one.**
 
-![Cube_Lab|562x233, 75%](upload://dpQlrrKJbapg2x0pUTjK6wfcHci.png)
+![Cube_Lab|562x233, 75%](https://stemgames.metastudio.org/uploads/default/original/2X/9/90f972b4f100fffbf0b5bdc213e1bb993bc36594.jpeg)
 
 ### **How can you participate?**
 There are two ways to participate:
